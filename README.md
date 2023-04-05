@@ -1,5 +1,3 @@
-# Global-Innovation-Index---Philippines
-
 ## Global-Innovation-Index---Philippines
 
 Global Innovation Index - Philippines
